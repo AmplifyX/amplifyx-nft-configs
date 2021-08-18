@@ -1,0 +1,1 @@
+# amplifyx-nft-configs
